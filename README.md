@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nishaabadar
-- 👀 I’m interested in puzzles, cats, biking, and coding!
+- 👀 I’m interested in puzzles, cats, space, biking, and coding!
 - 🌱 I’m currently studying Computer Engineering at TMU!
 - 📫 You can reach me via email @nishaabadar123@gmail.com.
 
